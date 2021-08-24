@@ -1,3 +1,0 @@
-#INFORMATION
-####Name : Napatee Lapachai
-
